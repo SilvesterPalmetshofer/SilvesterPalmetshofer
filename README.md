@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning nothing.
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me: Just don´t!
-- 😄 Pronouns: he/him
+- 😄 Pronouns: he/she/it das S muss mit!
 - ⚡ Fun fact: There´s nothing fun about me. :(
 
 <!---
